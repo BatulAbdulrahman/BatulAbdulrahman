@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Batulmk966@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1V6KWbNFCWi6yRm4kg2Fp2BC5MyD15YJ9/view?usp=sharing](https://drive.google.com/file/d/1V6KWbNFCWi6yRm4kg2Fp2BC5MyD15YJ9/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1x41ova9tSyyeJ8IvtWoe3HUMZKkouG9c/view?usp=sharing](https://drive.google.com/file/d/1x41ova9tSyyeJ8IvtWoe3HUMZKkouG9c/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
